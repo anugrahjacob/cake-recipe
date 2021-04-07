@@ -1,4 +1,3 @@
-# MASTERSHEF.JR
 Preheat oven to 180⁰ C.  Lightly grease an 8” diameter baking tin and dust with flour.
  
 Sieve together maida, cocoa powder and baking powder. Keep aside.
